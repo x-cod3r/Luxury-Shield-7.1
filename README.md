@@ -14,4 +14,4 @@ enjoy😎🤳.
 
 Auth password:
 
-<<<<  )@#)>!<Fsociety@Davizinmaker@TioSam"Sp4rtan"))!++++)@^^`ÇPP  >>>>
+)@#)>!<Fsociety@Davizinmaker@TioSam"Sp4rtan"))!++++)@^^`ÇPP
